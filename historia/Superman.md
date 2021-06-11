@@ -1,4 +1,4 @@
-# Superman
+# Superman 🦸‍♂️
 
 Superman (cuyo nombre kryptoniano es Kal-El y su nombre terrestre es Clark Kent) es un personaje ficticio, un superhéroe de los cómics que aparece en las publicaciones de DC Comics.1 2 3 4 Creado por el escritor estadounidense Jerry Siegel y el artista canadiense Joe Shuster en 1933 cuando ambos se encontraban viviendo en Cleveland, Ohio; lo vendieron a Detective Comics, Inc. en 1938 por USD  1305 y la primera aventura del personaje fue publicada en Action Comics #1 (junio de 1938), para luego aparecer en varios seriales de radio, programas de televisión, películas, tiras periódicas y videojuegos. Con el éxito de sus aventuras, Superman ayudó a crear el género del superhéroe y estableció su primacía dentro del cómic estadounidense.1 La apariencia del personaje es distintiva e icónica: un traje azul y rojo, con una capa y un escudo de “S” estilizado en su pecho,6 7 8 escudo que se ha convertido en un símbolo del personaje en todo tipo de medios de comunicación.9
 
